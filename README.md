@@ -1,0 +1,5 @@
+- 👋 Yo! We Are @gsintapp
+- 👀 Interested In Crypto And Pz
+- 🌱 Pif Everyday
+- 💞️ Love Love
+- 📫 admin@gsint.co.uk
